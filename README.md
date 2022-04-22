@@ -1,0 +1,2 @@
+# -convite-
+・┈・┈・꒰ა˚₊﹕✧﹕ ﹕✧﹕໒꒱˚₊· ┈・┈・  ໑₊˚﹕꒰ 🐟 Ohayo! Que tal Ler Um Pouco Sobre O Meu Server?꒱﹕˚₊໑   ・┈・┈・꒰ა˚₊﹕✧﹕ ﹕✧﹕໒꒱˚₊· ┈・┈・ ꒷꒦ॱ ︶･ ˖ॱ꒷꒦︶︶꒷꒦꒷꒦ॱ ︶･ ˖ॱ꒷꒦︶︶꒷꒦꒷꒦ॱ ︶･ ˖ॱ꒷꒦︶︶꒷꒦  ꒰꒰・┄┄┄┄・‹𝟹 Mali House！・┄┄┄┄・꒱꒱  🌊  ┊ ➜ Servidor Organizado! ┊ ➜  Staffs/Admin's Responsáveis! ┊ ➜ Membros Legais ┊ ➜ Temos Ajuda De Vários Bot's E Adm's! ┊Parcerias Abertas!  🌊 ꒷꒦ॱ ︶･ ˖ॱ꒷꒦︶︶꒷꒦꒷꒦ॱ ︶･ ˖ॱ꒷꒦︶︶꒷꒦꒷꒦ॱ ︶･ ˖ॱ꒷꒦︶︶꒷꒦  ・┈・┈・꒰ა˚₊﹕✧﹕ ﹕✧﹕໒꒱˚₊· ┈・┈・  ໑₊˚﹕꒰ 🦀Esperamos Por Vc!꒱﹕˚₊໑   ・┈・┈・꒰ა˚₊﹕✧﹕ ﹕✧﹕໒꒱˚₊· ┈・┈・  ꒰꒰・┄┄┄┄ ・Obrigado Pela Atenção.🐧・┄┄┄┄・꒱꒱
